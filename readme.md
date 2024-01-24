@@ -1,0 +1,6 @@
+- Make a web game
+- Have atleast 4 mini game
+- Have quest ten type atleast
+- have store
+- Have 2 Girls (atleat one)
+- You can chat, flirt with girl 
